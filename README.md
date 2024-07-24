@@ -19,7 +19,7 @@
     -   povinné práce vězňů
     -   trest smrti za vraždu (při prokázání nad vší pochybnost)
     -   snížení trestní hranice pod 15 let pro závažné trestné činy
-    -   kastrace za brutální znásilnění nebo opakované znásilnění (při prokázání nad vší pochybnost)
+    -   fyzická kastrace za brutální znásilnění nebo opakované znásilnění (při prokázání nad vší pochybnost)
 
 ## Důvod vzniku
 
