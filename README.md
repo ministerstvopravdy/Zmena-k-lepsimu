@@ -48,6 +48,7 @@ Typy ovlivňování:
 ## Co není potřeba měnit
 
 Sociální smýšlení je velkou součástí naší kultury a jeden z důvodů proč naše republika patří mezi nevyspělejší ([25. místo v roce 2023](https://gfmag.com/data/non-economic-data/most-advanced-countries-in-the-world/)), nejvíce bezpečné země na světě ([12. místo v roce 2023](https://worldpopulationreview.com/country-rankings/safest-countries-in-the-world)) s nejvyšší kvalitou života ([23. místo v roce 2024](https://www.numbeo.com/quality-of-life/rankings_by_country.jsp)).
+
 Ve státní správě by měly zůstat tyto sektory:
 
 -   Školství (paralelně se soukromými školami)
