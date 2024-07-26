@@ -69,6 +69,8 @@ Zrušit/prodat:
 -   České dráhy (soukromý sektor zvládá úlohu lépe)
 -   Městská policie (posílení Policie ČR)
 -   Veškeré financování neziskových organizací
+-   Česká televize / rozhlas
+-   financování filmů / seriálů veřejnými penězi
 
 Zásadní reforma:
 
@@ -76,6 +78,10 @@ Zásadní reforma:
 -   Soudnictví
 -   Vězeňské služby
 -   Volby (přechod na čistě elektronické)
+
+Další:
+
+-   porušení základních, předem ustanovených slibů politické strany na jakékoli úrovni (obecní, parlamentní) by mělo vyústit ke ztrátě mandátu a v nové volby
 
 ### Neziskové organizace
 
