@@ -20,6 +20,9 @@
     -   trest smrti za vraždu (při prokázání nad vší pochybnost)
     -   snížení trestní hranice pod 15 let pro závažné trestné činy
     -   fyzická kastrace za brutální znásilnění nebo opakované znásilnění (při prokázání nad vší pochybnost)
+-   referendum
+    -   možnost hlasování v celostátním referendu o důležitých zákonech
+    -   možnost vyvolání referenda na základě petice
 
 ## Důvod vzniku
 
