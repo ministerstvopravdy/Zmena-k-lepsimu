@@ -23,9 +23,12 @@
 -   referendum
     -   možnost hlasování v celostátním referendu o důležitých zákonech
     -   možnost vyvolání referenda na základě petice
--   zrušení všech pro občany nevýhodných a nesmyslných nařízení a daní
+-   zrušení všech pro občany nevýhodných a nesmyslných nařízení a daní, které je stojí peníze a nic z nich nemají
     -   Greedeal
     -   Poplatky za obnovitelné zdroje
+-   zrušení dotování a financování zájmových nebo zvýhodněných skupin, veřejně neprospěšných věcí, věcí o které se má starat trh
+    -   Elektrická vozidla
+    -   Zelená úsporám
 
 ## Důvod vzniku
 
