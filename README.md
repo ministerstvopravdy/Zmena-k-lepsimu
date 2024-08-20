@@ -29,6 +29,7 @@
 -   zrušení dotování a financování zájmových nebo zvýhodněných skupin, veřejně neprospěšných věcí, věcí o které se má starat trh
     -   Elektrická vozidla
     -   Zelená úsporám
+-   Omezení/zrušení peněz pro politiky (senátory) a instituce na propagaci sebe sama. Zrušení diet a dalších výdajů jako telefon, ubytování atd. Politik má plat na pokrytí svých osobních výdajů.
 
 ## Důvod vzniku
 
