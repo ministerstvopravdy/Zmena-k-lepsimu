@@ -92,6 +92,7 @@ Zásadní reforma:
 Další:
 
 -   porušení základních, předem ustanovených slibů politické strany na jakékoli úrovni (obecní, parlamentní) by mělo vyústit ke ztrátě mandátu a v nové volby
+-   Zablokování sanitky je přestupek - Úmyslné zablokování sanitky má být trestný čin
 
 ### Neziskové organizace
 
