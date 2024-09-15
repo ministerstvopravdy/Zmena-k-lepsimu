@@ -32,6 +32,8 @@
 -   Omezení/zrušení peněz pro politiky (senátory), stát, státní zřízení a instituce na propagaci sebe sama.
     -   Zrušení diet a dalších výdajů jako telefon, ubytování atd. Politik má plat na pokrytí svých osobních výdajů.
     -   Zrušení reklamních sdělení
+-   Zrušení inkluze ve školách
+-   Zrušení jakýchkoli kvót
 
 ## Důvod vzniku
 
