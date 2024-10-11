@@ -35,6 +35,7 @@
     -   Zrušení reklamních sdělení
 -   Zrušení inkluze ve školách
 -   Zrušení jakýchkoli kvót
+-   Zrušení systému dinančních odměn v celém státním aparátu
 
 ## Důvod vzniku
 
