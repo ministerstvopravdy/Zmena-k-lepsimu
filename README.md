@@ -115,3 +115,7 @@ Zrušením financování neziskových organizací získáme:
 ### Neutralita
 
 Směr k neutrálnosti (jako Švýcarsko a Rakousko)
+
+### Nesmysly ke zrušení
+
+-  Zálohování PET lahví a plechovek
