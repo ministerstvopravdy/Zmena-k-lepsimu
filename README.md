@@ -36,6 +36,8 @@
 -   Zrušení inkluze ve školách
 -   Zrušení jakýchkoli kvót
 -   Zrušení systému dinančních odměn v celém státním aparátu
+-   Podnikání
+      - Možnost obsloužit/neobsloužit koho chci
 
 ## Důvod vzniku
 
