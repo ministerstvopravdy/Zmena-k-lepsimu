@@ -39,6 +39,8 @@
 -   Podnikání
       - Možnost obsloužit/neobsloužit koho chci
  - Zrušení systému odměn ve státní správě. Tím by se mělo narovnat odměňování všech státních zaměstnanců - [Šéf pražského magistrátu se odvázal, asistence dal odměny 857 tisíc a služební byt v centru k tomu](https://www.novinky.cz/clanek/domaci-asistentka-sefa-prazskeho-magistratu-dostala-rekordni-odmeny-40499487), [Za zpackanou digitalizaci mimořádné odměny. Bral je i obviněný z Dozimetru](https://www.idnes.cz/zpravy/domaci/digitalizace-stavebniho-rizeni-odmeny-steffel-bartos.A241003_201017_domaci_vals)
+ - Vystoupení z OSN a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
+ - Nepřijmutí EURa
 
 ## Důvod vzniku
 
@@ -116,6 +118,10 @@ Zrušením financování neziskových organizací získáme:
 -   Více nezávislosti a méně korupce
 
 ### Evropská Unie
+
+Zbytěčná byrokratická, ekonomická a bezpečnostní zátěž pro celou Evropu, kterou EU představuje není pro ČR vhodná. Ale jelikož lidé se bojí z různých, ať již smyšlených či nikoli, důvodů odejít z EU, tak v ní setrváme. 
+    -    Přestaneme platit příspěvky a odebírat peníze z EU. Pro ní to bude výhodné, protože jsme podle ní čistí příjemci a pro nás také, protože si můžeme s penězi nakládat jak chceme. Ušetříme tím peníze na byrokracii a úředníky EU.
+    -    Přestaneme slepě přijímat všechny zákony, které našemu svrchovanému státu EU diktuje. Zrušíme všechny špatné zákony; Greendeal atd.
 
 ### Neutralita
 
