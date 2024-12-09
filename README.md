@@ -14,6 +14,7 @@
     -   povinné práce vězňů
     -   trest smrti za vraždu (při prokázání nad vší pochybnost)
     -   snížení trestní hranice pod 15 let pro závažné trestné činy
+    -   zrušení hranice 18 let pro mladistvé pro závažné trestné činy - vraždy, znásilnění, ozbrojená přepadení,...
     -   fyzická kastrace za brutální znásilnění nebo opakované znásilnění (při prokázání nad vší pochybnost)
     -   zpřísnění finančních trestů firmám a jejich vymáhání u případů, kde se trestná činnost a přestupky firmám vyplácí - [Šéf SÚKL: Pár lékáren nelegálně léky stále vyváží. I přes pokuty se jim to vyplatí](https://www.novinky.cz/clanek/domaci-sef-sukl-par-lekaren-nelegalne-leky-stale-vyvazi-i-pres-pokuty-se-jim-to-vyplati-40491082))
 -   Referendum
