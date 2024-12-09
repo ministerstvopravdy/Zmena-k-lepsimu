@@ -2,17 +2,12 @@
 
 ## Hlavní body
 
--   svoboda slova
+-   Svoboda slova
     -   ušetření práce Policie ČR a soudnictví
     -   ušetření peněz daňových poplatníků
     -   větší svoboda
--   rovnost všech občanů
-    -   zrušení imunity poslanců
-    -   zrušení možnosti udělení amnestie prezidentem ČR
-    -   zrušení všech privilegií jakýchkoli menšin na základě národnosti, sexuality, pohlaví atd. jako zákazy informování o kriminálních statistikách atd.
--   státní neutralita
--   zrušení financování neziskových organizací
--   soudnictví
+-   Státní neutralita
+-   Soudnictví
     -   zrychlené řízení
     -   kauce
     -   sčítání trestů
@@ -21,13 +16,25 @@
     -   snížení trestní hranice pod 15 let pro závažné trestné činy
     -   fyzická kastrace za brutální znásilnění nebo opakované znásilnění (při prokázání nad vší pochybnost)
     -   zpřísnění finančních trestů firmám a jejich vymáhání u případů, kde se trestná činnost a přestupky firmám vyplácí - [Šéf SÚKL: Pár lékáren nelegálně léky stále vyváží. I přes pokuty se jim to vyplatí](https://www.novinky.cz/clanek/domaci-sef-sukl-par-lekaren-nelegalne-leky-stale-vyvazi-i-pres-pokuty-se-jim-to-vyplati-40491082))
--   referendum
+-   Referendum
     -   možnost hlasování v celostátním referendu o důležitých zákonech
     -   možnost vyvolání referenda na základě petice
--   zrušení všech pro občany nevýhodných a nesmyslných nařízení a daní, které je stojí peníze a nic z nich nemají
+-   Podnikání
+      - Možnost obsloužit/neobsloužit koho chci
+-   Vystoupení z OSN a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
+-   Nepřijmutí EURa
+
+### Zrušení dotací, institucí, zákonů atd.
+
+-   Rovnost všech občanů
+    -   zrušení imunity poslanců
+    -   zrušení možnosti udělení amnestie prezidentem ČR
+    -   zrušení všech privilegií jakýchkoli menšin na základě národnosti, sexuality, pohlaví atd. jako zákazy informování o kriminálních statistikách atd.
+-   Zrušení financování neziskových organizací
+-   Zrušení všech pro občany nevýhodných a nesmyslných nařízení a daní, které je stojí peníze a nic z nich nemají
     -   Greedeal
     -   Poplatky za obnovitelné zdroje
--   zrušení dotování a financování zájmových nebo zvýhodněných skupin, veřejně neprospěšných věcí, věcí o které se má starat trh
+-   Zrušení dotování a financování zájmových nebo zvýhodněných skupin, veřejně neprospěšných věcí, věcí o které se má starat trh
     -   Elektrická vozidla
     -   Zelená úsporám
 -   Omezení/zrušení peněz pro politiky (senátory), stát, státní zřízení a instituce na propagaci sebe sama.
@@ -36,11 +43,8 @@
 -   Zrušení inkluze ve školách
 -   Zrušení jakýchkoli kvót
 -   Zrušení systému dinančních odměn v celém státním aparátu
--   Podnikání
-      - Možnost obsloužit/neobsloužit koho chci
+-   Zrušení OSA
  - Zrušení systému odměn ve státní správě. Tím by se mělo narovnat odměňování všech státních zaměstnanců - [Šéf pražského magistrátu se odvázal, asistence dal odměny 857 tisíc a služební byt v centru k tomu](https://www.novinky.cz/clanek/domaci-asistentka-sefa-prazskeho-magistratu-dostala-rekordni-odmeny-40499487), [Za zpackanou digitalizaci mimořádné odměny. Bral je i obviněný z Dozimetru](https://www.idnes.cz/zpravy/domaci/digitalizace-stavebniho-rizeni-odmeny-steffel-bartos.A241003_201017_domaci_vals)
- - Vystoupení z OSN a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
- - Nepřijmutí EURa
 
 ## Důvod vzniku
 
