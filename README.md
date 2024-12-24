@@ -47,7 +47,8 @@
 -   Zrušení OSA
  - Zrušení systému odměn ve státní správě. Tím by se mělo narovnat odměňování všech státních zaměstnanců - [Šéf pražského magistrátu se odvázal, asistence dal odměny 857 tisíc a služební byt v centru k tomu](https://www.novinky.cz/clanek/domaci-asistentka-sefa-prazskeho-magistratu-dostala-rekordni-odmeny-40499487), [Za zpackanou digitalizaci mimořádné odměny. Bral je i obviněný z Dozimetru](https://www.idnes.cz/zpravy/domaci/digitalizace-stavebniho-rizeni-odmeny-steffel-bartos.A241003_201017_domaci_vals)
 -   Zrušení akreditací nesmyslným oborům jako "Genderová studia"
--   Zrušení zákonů jednostranně napomáhajícím kriminálníkům jako "Nutnost souhlasu s nahráváním", "Nemožnost zveřejnit policejní odposlechy" atd. 
+-   Zrušení zákonů jednostranně napomáhajícím kriminálníkům jako "Nutnost souhlasu s nahráváním", "Nemožnost zveřejnit policejní odposlechy" atd.
+-   Zrušeni GDPR
 
 ## Důvod vzniku
 
