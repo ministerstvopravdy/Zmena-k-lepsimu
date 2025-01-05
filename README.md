@@ -9,7 +9,6 @@
     -   ušetření práce Policie ČR a soudnictví
     -   ušetření peněz daňových poplatníků
     -   větší svoboda
--   Státní neutralita
 -   Soudnictví
     -   zrychlené řízení
     -   kauce
@@ -26,6 +25,7 @@
 -   Podnikání
       - Možnost obsloužit/neobsloužit koho chci
 -   Vystoupení z OSN a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
+-   Státní neutralita
 -   Nepřijmutí EURa
 
 ### Zrušení dotací, institucí, zákonů atd.
