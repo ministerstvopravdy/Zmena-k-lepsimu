@@ -4,6 +4,7 @@
 
 ## Hlavní body
 
+-   Zrušení migračního paktu - prošetření okolností tak jednostranně bezpečnostně a finančně nevýhodné smlouvě a potrestání viníků. Prošetření jestli tato skutečnost nenaplňuje vlastnosti vlastizrady. Jde jednoznačně o narušení integrity České republiky.
 -   Svoboda slova
     -   ušetření práce Policie ČR a soudnictví
     -   ušetření peněz daňových poplatníků
