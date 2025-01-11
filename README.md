@@ -52,6 +52,7 @@
 -   Zrušení akreditací nesmyslným oborům jako "Genderová studia"
 -   Zrušení zákonů jednostranně napomáhajícím kriminálníkům jako "Nutnost souhlasu s nahráváním", "Nemožnost zveřejnit policejní odposlechy" atd.
 -   Zrušeni GDPR
+-   Zrušení povinnosti vlastnit (neaktuální) projektovou dokumentaci domu - [Za chybějící papíry k domu pokuta. Polovině Čechů hrozí sankce až 400 tisíc](https://www.idnes.cz/zpravy/domaci/sankce-pokuta-projektova-dokumentace-dum-stavebni-urad.A250110_194244_domaci_kori?zdroj=otvirak)
 
 ## Důvod vzniku
 
