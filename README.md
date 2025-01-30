@@ -24,7 +24,7 @@
     -   možnost vyvolání referenda na základě petice
 -   Podnikání
       - Možnost obsloužit/neobsloužit koho chci
--   Vystoupení z OSN a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
+-   Vystoupení z OSN, WHO a dalších zbytečných spolků. Zastavení příspěvků do všech cizích zemí
 -   Státní neutralita
 -   Nepřijmutí EURa
 -   Zrušení přílepků u zákonů
