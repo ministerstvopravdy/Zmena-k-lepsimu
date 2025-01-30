@@ -56,6 +56,7 @@
 -   Zrušení povinnosti vlastnit (neaktuální) projektovou dokumentaci domu - [Za chybějící papíry k domu pokuta. Polovině Čechů hrozí sankce až 400 tisíc](https://www.idnes.cz/zpravy/domaci/sankce-pokuta-projektova-dokumentace-dum-stavebni-urad.A250110_194244_domaci_kori?zdroj=otvirak)
 -   Zrušení náhrad, automobilů, řidičů atd. Normální člověk si také platí veškeré výdaje.
 -   Zrušení nutnosti prostředníka ke koupi nemovitosti - [Peníze za prodaný byt z advokátní úschovy nedostala, majitelkou přesto už není. Posvětil to i Ústavní soud](https://www.novinky.cz/clanek/krimi-penize-za-prodany-byt-z-advokatni-uschovy-nedostala-majitelkou-presto-uz-neni-posvetil-to-i-ustavni-soud-40505361)
+-   Zrušení možnosti "změny pohlaví" ať už fyzické, což je jen znetvoření lidí, nebo identifikační což vede k zneužití systému jako zařazování mužů do ženských věznic atd.
 
 ## Důvod vzniku
 
