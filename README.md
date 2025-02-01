@@ -35,7 +35,6 @@
     -   zrušení imunity poslanců
     -   zrušení možnosti udělení amnestie prezidentem ČR
     -   zrušení všech privilegií jakýchkoli menšin na základě národnosti, sexuality, pohlaví atd. jako zákazy informování o kriminálních statistikách atd.
--   Zrušení financování neziskových organizací
 -   Zrušení všech pro občany nevýhodných a nesmyslných nařízení a daní, které je stojí peníze a nic z nich nemají
     -   Greedeal
     -   Poplatky za obnovitelné zdroje
@@ -103,7 +102,6 @@ Zrušit/prodat:
 -   Česká pošta (soukromý sektor zvládá úlohu lépe)
 -   České dráhy (soukromý sektor zvládá úlohu lépe)
 -   Městská policie (posílení Policie ČR)
--   Veškeré financování neziskových organizací
 -   Česká televize / rozhlas
 -   financování filmů / seriálů veřejnými penězi
 
@@ -132,6 +130,7 @@ Zrušením financování neziskových organizací získáme:
     -   Konec dotacím neziskových organizací
 
 -   Více nezávislosti a méně korupce
+-   Cizí mocnosti ovlivňují chod a bezpečnost ČR skrze neziskové organizace. Je potřeba nejen přestat financovat neziskovky z rozpočtu ČR, ale buď zakázat a nebo zevrubně kontrolovat kým jsou placeny a co přesně dělají zahraniční neziskovky působící v ČR. [Trump utáhl kohouty s penězi pro neziskovky. Pocítí to i běženci v Česku](https://www.idnes.cz/zpravy/domaci/ceske-neziskovky-prijdou-o-penize-kvuli-rozhodnuti-trumpa.A250201_837916_domaci_jan)
 
 ### Evropská Unie
 
