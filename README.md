@@ -56,6 +56,7 @@
 -   Zrušení náhrad, automobilů, řidičů atd. Normální člověk si také platí veškeré výdaje.
 -   Zrušení nutnosti prostředníka ke koupi nemovitosti - [Peníze za prodaný byt z advokátní úschovy nedostala, majitelkou přesto už není. Posvětil to i Ústavní soud](https://www.novinky.cz/clanek/krimi-penize-za-prodany-byt-z-advokatni-uschovy-nedostala-majitelkou-presto-uz-neni-posvetil-to-i-ustavni-soud-40505361)
 -   Zrušení možnosti "změny pohlaví" ať už fyzické, což je jen znetvoření lidí, nebo identifikační což vede k zneužití systému jako zařazování mužů do ženských věznic atd.
+-   Zálohování PET lahví a plechovek
 
 ## Důvod vzniku
 
@@ -144,6 +145,3 @@ Zbytěčná byrokratická, ekonomická a bezpečnostní zátěž pro celou Evrop
 
 Směr k neutrálnosti (jako Švýcarsko a Rakousko)
 
-### Nesmysly ke zrušení
-
--  Zálohování PET lahví a plechovek
