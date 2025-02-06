@@ -108,7 +108,7 @@ Zrušit/prodat:
 
 Zásadní reforma:
 
--   Školství
+-   Školství - zrušení státních maturit a přijímacích zkoušek
 -   Soudnictví
 -   Vězeňské služby
 -   Volby (přechod na čistě elektronické)
