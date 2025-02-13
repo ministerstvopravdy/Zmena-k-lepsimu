@@ -134,8 +134,8 @@ Zrušením financování neziskových organizací získáme:
 
 -   Více nezávislosti a méně korupce
 -   Cizí mocnosti ovlivňují chod a bezpečnost ČR skrze neziskové organizace. Je potřeba nejen přestat financovat neziskovky z rozpočtu ČR. A buď zakázat a nebo zevrubně kontrolovat kým jsou placeny a co přesně dělají zahraniční neziskovky působící v ČR. Mimojiné povinnost mít veřejný účet se všemi transakcemi.
-  *    [Trump utáhl kohouty s penězi pro neziskovky. Pocítí to i běženci v Česku](https://www.idnes.cz/zpravy/domaci/ceske-neziskovky-prijdou-o-penize-kvuli-rozhodnuti-trumpa.A250201_837916_domaci_jan)
-  *    [Skandál v Bruselu: Evropská unie dotovala ekologické neziskovky, které měly lobbovat za zelenou politiku](https://www.forum24.cz/skandal-v-bruselu-evropska-unie-dotovala-ekologicke-neziskovky-ktere-mely-lobbovat-za-zelenou-politiku)
+    -    [Trump utáhl kohouty s penězi pro neziskovky. Pocítí to i běženci v Česku](https://www.idnes.cz/zpravy/domaci/ceske-neziskovky-prijdou-o-penize-kvuli-rozhodnuti-trumpa.A250201_837916_domaci_jan)
+    -    [Skandál v Bruselu: Evropská unie dotovala ekologické neziskovky, které měly lobbovat za zelenou politiku](https://www.forum24.cz/skandal-v-bruselu-evropska-unie-dotovala-ekologicke-neziskovky-ktere-mely-lobbovat-za-zelenou-politiku)
 
 ### Evropská Unie
 
