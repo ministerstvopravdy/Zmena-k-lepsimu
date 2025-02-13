@@ -28,6 +28,8 @@
 -   Státní neutralita
 -   Nepřijmutí EURa
 -   Zrušení přílepků u zákonů
+-   Zrušení GDPR
+-   Zrušení nemožnosti použití "nezákonných" odposlechů, foto a video záznamů. Takové opatření jde jen na ruku zločincům.
 
 ### Zrušení dotací, institucí, zákonů atd.
 
