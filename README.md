@@ -147,3 +147,6 @@ Zbytěčná byrokratická, ekonomická a bezpečnostní zátěž pro celou Evrop
 
 Směr k neutrálnosti (jako Švýcarsko a Rakousko)
 
+### Protesty
+
+Jedna ze základních svobod lidí je možnost pokojně protestovat. Toto má však sloužit k občanům našeho státu, aby vyslovili nesouhlas s věcmi, které se jim nelíbí uvnitř našeho státu. Ne pro cizí velmoci rozvracet stát. Na protestech mohou figurovat pouze lidé s českou státní příslušností. Ostatní by měli být potrestáni vyhoštěním a zákazem vstupu do ČR. Je potřeba obnovit precedens, že Česká republika patří Čechům a pokud jste u nás v zemi hosté řídíte se našimi zákony.
