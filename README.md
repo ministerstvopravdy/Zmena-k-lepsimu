@@ -59,6 +59,7 @@
 -   Zrušení nutnosti prostředníka ke koupi nemovitosti - [Peníze za prodaný byt z advokátní úschovy nedostala, majitelkou přesto už není. Posvětil to i Ústavní soud](https://www.novinky.cz/clanek/krimi-penize-za-prodany-byt-z-advokatni-uschovy-nedostala-majitelkou-presto-uz-neni-posvetil-to-i-ustavni-soud-40505361)
 -   Zrušení možnosti "změny pohlaví" ať už fyzické, což je jen znetvoření lidí, nebo identifikační což vede k zneužití systému jako zařazování mužů do ženských věznic atd.
 -   Zálohování PET lahví a plechovek
+-   Audit všech zakázek a zrušení všech zbytečných jako například "vytváření sociomap" - [Auditoři cupovali záložně milionové zakázky s „nejasným smyslem“](https://www.seznamzpravy.cz/clanek/domaci-kauzy-velke-zakazky-s-nejasnym-smyslem-auditory-v-zalozne-zaujal-specialni-byznys-269849)
 
 ## Důvod vzniku
 
