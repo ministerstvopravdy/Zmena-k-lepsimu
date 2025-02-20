@@ -1,7 +1,5 @@
 # Změna k lepšímu
 
-![MEGA svgz](https://github.com/user-attachments/assets/6a863d29-60dd-4940-b609-168e6f6af3c3)
-
 ## Hlavní body
 
 -   Zrušení migračního paktu - prošetření okolností tak jednostranně bezpečnostně a finančně nevýhodné smlouvě a potrestání viníků. Prošetření jestli tato skutečnost nenaplňuje vlastnosti vlastizrady. Jde jednoznačně o narušení integrity České republiky.
