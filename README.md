@@ -3,6 +3,7 @@
 ## Sledujte nás
 
 [YouTube](https://www.youtube.com/@MinisterstvoPravdy)
+
 [X](https://x.com/Ministerstvocz)
 
 ## Hlavní body
