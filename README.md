@@ -1,5 +1,10 @@
 # Změna k lepšímu
 
+## Sledujte nás
+
+[YouTube](https://www.youtube.com/@MinisterstvoPravdy)
+[X](https://x.com/Ministerstvocz)
+
 ## Hlavní body
 
 -   Zrušení migračního paktu - prošetření okolností tak jednostranně bezpečnostně a finančně nevýhodné smlouvě a potrestání viníků. Prošetření jestli tato skutečnost nenaplňuje vlastnosti vlastizrady. Jde jednoznačně o narušení integrity České republiky.
