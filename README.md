@@ -73,7 +73,7 @@
 -   spřátelenými mocnostmi (EU, USA,...)
     -    [Další skandál v Bruselu? EU poslala před volbami několika mediálním domům 132 milionů eur ](https://www.echo24.cz/a/HVv3s/zpravy-svet-dalsi-skandal-v-bruselu-evropska-unie-poslala-desitky-milionu-medialnim-domum-pred-volbami)
     -    [Skandál v Bruselu. Evropská komise platila neziskovky za šíření zelené politiky](https://www.echo24.cz/a/Hthq4/zpravy-svet-skandal-v-bruselu-komise-financovala-neziskovky-kvuli-lobbovani-za-zelenou-politiku)
-    -    [„Hadí hnízdo marxistů.“ Trump s Muskem ruší „zločineckou“ agenturu USAID spolupracující s Člověkem v tísni ](https://www.echo24.cz/a/HcgRc/zpravy-svet-trump-vytahl-proti-neziskovkam-vcetne-clovek-v-tisni-hadi-hnizdo-marxistu) - USA financovaly neziskovky po celém světě, aby propagovaly různé destruktivní ideologie včetně LGBT propagandy a napomáhání ilegálním migrantům vstoupit do Evropy, napomáhání teroristům v Palestině atd.
+    -    [„Hadí hnízdo marxistů.“ Trump s Muskem ruší „zločineckou“ agenturu USAID spolupracující s Člověkem v tísni ](https://www.echo24.cz/a/HcgRc/zpravy-svet-trump-vytahl-proti-neziskovkam-vcetne-clovek-v-tisni-hadi-hnizdo-marxistu) - USA financovaly neziskovky po celém světě, aby propagovaly různé destruktivní ideologie včetně LGBT propagandy a napomáhání ilegálním migrantům vstoupit do Evropy, financování teroristů v Palestině atd.
 -   znepřátelenými mocnostmi (Rusko,...)
 -   vlastními politiky (parlamentní i neparlamentní strany)
 -   neziskové organizace
