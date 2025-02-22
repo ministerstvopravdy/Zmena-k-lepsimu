@@ -71,6 +71,9 @@
 Česká republika i přes svoji geografickou a geopolitickou polohu nereflektuje plný potenciál svých možností. I přesto, že bezesporu patříme mezi nejsvobodnější a nejbohatší země na světě je neustále vyvíjen tlak:
 
 -   spřátelenými mocnostmi (EU, USA,...)
+    -    [Další skandál v Bruselu? EU poslala před volbami několika mediálním domům 132 milionů eur ](https://www.echo24.cz/a/HVv3s/zpravy-svet-dalsi-skandal-v-bruselu-evropska-unie-poslala-desitky-milionu-medialnim-domum-pred-volbami)
+    -    [Skandál v Bruselu. Evropská komise platila neziskovky za šíření zelené politiky](https://www.echo24.cz/a/Hthq4/zpravy-svet-skandal-v-bruselu-komise-financovala-neziskovky-kvuli-lobbovani-za-zelenou-politiku)
+    -    [„Hadí hnízdo marxistů.“ Trump s Muskem ruší „zločineckou“ agenturu USAID spolupracující s Člověkem v tísni ](https://www.echo24.cz/a/HcgRc/zpravy-svet-trump-vytahl-proti-neziskovkam-vcetne-clovek-v-tisni-hadi-hnizdo-marxistu) - USA financovaly neziskovky po celém světě, aby propagovaly různé destruktivní ideologie včetně LGBT propagandy a napomáhání ilegálním migrantům vstoupit do Evropy
 -   znepřátelenými mocnostmi (Rusko,...)
 -   vlastními politiky (parlamentní i neparlamentní strany)
 -   neziskové organizace
