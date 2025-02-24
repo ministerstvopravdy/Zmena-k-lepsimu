@@ -130,6 +130,10 @@ Další:
 -   Zablokování sanitky je přestupek - Úmyslné zablokování sanitky má být trestný čin.
     -  Zdravotnický personál v případě ohrožení / napadení má právo jakkoli zpacifikovat útočníka bez jakýchkoli právních následků.
 
+### Ochrana vlastníků nemovitostí
+
+-    Při nezaplacení nájemného nebo nedoplatků 2 měsíce po sobě možnost vystěhování nájemníků
+
 ### Neziskové organizace
 
 _HLAVNÍ BOD_
