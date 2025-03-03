@@ -159,9 +159,9 @@ Zbytěčná byrokratická, ekonomická a bezpečnostní zátěž pro celou Evrop
 
 ### Neutralita
 
-Směr k vojenské neutralitě ve stejném smyslu jako ne/účast v EU. Dobré vztahy s ostatními státy pro dobro naší země a ochrana naší země jsou prioritou. 
+Směr k vojenské neutralitě ve stejném smyslu jako obchodní neutralitě. Dobré vztahy s ostatními státy pro dobro naší země a ochrana naší země jsou prioritou stejně jako ekonomické blaho naší země. 
 
-Neutralita znamená posílení obranyschopnosti země. Za naši obranu zodpovídá naše armáda a ústavní instituce, ne cizí mocnosti a organizace. Z historického i současného hlediska vidíme, že se na nekonečný mír ani "spojence" nemůžeme zcela spolehnout.
+Vojenská neutralita znamená posílení obranyschopnosti země. Za naši obranu zodpovídá naše armáda a ústavní instituce, ne cizí mocnosti a organizace. Z historického i současného hlediska vidíme, že se na nekonečný mír ani "spojence" nemůžeme zcela spolehnout.
 
 ### Protesty
 
