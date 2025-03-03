@@ -153,12 +153,15 @@ Zrušením financování neziskových organizací získáme:
 ### Evropská Unie
 
 Zbytěčná byrokratická, ekonomická a bezpečnostní zátěž pro celou Evropu, kterou EU představuje není pro ČR vhodná. Ale jelikož lidé se bojí z různých, ať již smyšlených či nikoli, důvodů odejít z EU, tak v ní setrváme. 
-    -    Přestaneme platit příspěvky a odebírat peníze z EU. Pro ní to bude výhodné, protože jsme podle ní čistí příjemci a pro nás také, protože si můžeme s penězi nakládat jak chceme. Ušetříme tím peníze na byrokracii a úředníky EU.
-    -    Přestaneme slepě přijímat všechny zákony, které našemu svrchovanému státu EU diktuje. Zrušíme všechny špatné zákony; Greendeal atd.
+
+-    Přestaneme platit příspěvky a odebírat peníze z EU. Pro ní to bude výhodné, protože jsme podle ní čistí příjemci a pro nás také, protože si můžeme s penězi nakládat jak chceme. Ušetříme tím peníze na byrokracii a úředníky EU.
+-    Přestaneme slepě přijímat všechny zákony, které našemu svrchovanému státu EU diktuje. Zrušíme všechny špatné zákony; Greendeal atd.
 
 ### Neutralita
 
-Směr k neutrálnosti (jako Švýcarsko a Rakousko)
+Směr k vojenské neutralitě ve stejném smyslu jako ne/účast v EU. Dobré vztahy s ostatními státy pro dobro naší země a ochrana naší země jsou prioritou. 
+
+Neutralita znamená posílení obranyschopnosti země. Za naši obranu zodpovídá naše armáda a ústavní instituce, ne cizí mocnosti a organizace. Z historického i současného hlediska vidíme, že se na nekonečný mír ani "spojence" nemůžeme zcela spolehnout.
 
 ### Protesty
 
